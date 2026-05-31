@@ -1,0 +1,1 @@
+# manc-n-k_oyunu
